@@ -1,1 +1,1 @@
-project url: https://shopify-spark-03.lovable.app
+ PROJECT URL : https://share.google/Nkv3gZ1hzg6GG5R1J
